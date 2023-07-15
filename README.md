@@ -1,4 +1,4 @@
-# TomaszKostecki
+# Tomasz Kostecki
 # 💫 About Me:
 30+;) radiographer with ongoing curiosity for technology and 17+ years of work experience in almost every modality of multiple vendors, various radiology fields, education and programming
 
